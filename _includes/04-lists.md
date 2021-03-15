@@ -1,10 +1,11 @@
 #### Things i think i like 😆
 
-1. Beer 
+1. Beer.
+   1. bud
 2. food
-  1. meat
+3. sex
 
-####Other things
+#### Other things
 
 - making things on my laptop
 - youtube
